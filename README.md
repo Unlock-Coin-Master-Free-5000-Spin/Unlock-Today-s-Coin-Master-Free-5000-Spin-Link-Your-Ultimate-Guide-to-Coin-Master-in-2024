@@ -2,7 +2,7 @@
 
 Coin Master, the widely popular mobile game developed by Moon Active, continues to captivate millions of players worldwide with its engaging mix of slot machines, collecting cards, and village-building mechanics. It’s a game that blends luck with strategy, offering an exciting experience for players of all ages. In this article, we will guide you through the basics of Coin Master, how you can maximize your gameplay, and—most importantly—how you can take advantage of the *exclusive* free spins offer available today!
 
-### [👉CLICK HERE TO GET NOW FREE](https://jackmarkjr.github.io/spins/)
+### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
 
 Before we dive in, here’s your chance to boost your Coin Master adventure: **Unlock Today's Coin Master Free 5000 Spin Link**! This offer will supercharge your gameplay, providing you with extra spins to progress faster in the game. Read on to learn more about how you can make the most of this special bonus.
 
